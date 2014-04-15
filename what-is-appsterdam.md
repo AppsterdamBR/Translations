@@ -1,6 +1,6 @@
-This post is translated to portuguese from its [original written by Mike Lee](http://mur.mu.rs/2011/06/30/what-is-appsterdam/)
+This post is translated to portuguese from its [original written by Mike Lee](http://mur.mu.rs/2011/06/30/what-is-appsterdam/).
 
-Esse artigo foi traduzido para português do seu [original escrito por Mike Lee](http://mur.mu.rs/2011/06/30/what-is-appsterdam/)
+Esse artigo foi traduzido para português do seu [original escrito por Mike Lee](http://mur.mu.rs/2011/06/30/what-is-appsterdam/).
 
 #O que é Appsterdam?
 
