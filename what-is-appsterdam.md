@@ -8,7 +8,7 @@ Em algum momento durante nosso encontro de voluntários, depois de anunciar que 
 
 É, como a pergunta "Por que Amsterdam?", difícil de responder, porque existem várias respostas e a melhor depende de quem você é. Nosso movimento cresce organicamente de acordo com os talentos e as paixões dos seus membros. Nós temos várias iniciativas que vão em várias direções diferentes.
 
-Por exemplo, nosso website serve como um "calendário de concertos" para eventos em ou aos redores de Amsterdam, mas nós também planejamos eventos. Nos reunimos Criadores de App* para o "Meeten en Drinken"**, mas nós também oferecemos áreas de trabalho gratuitas e educação. Nós ajudamos pessoas a serem independentes, mas nós também temos dinheiro investido.
+Por exemplo, nosso website serve como um "calendário de concertos" para eventos em ou aos redores de Amsterdam, mas nós também planejamos eventos. Nos reunimos Criadores de App* para o "Meeten en Drinken"**, mas nós também oferecemos áreas de trabalho gratuito e educação. Nós ajudamos pessoas a serem independentes, mas nós também temos dinheiro investido.
 
 Se você tentar definir o movimento Appsterdam pelas suas iniciativas, você vai rapidamente ficar sem palavras e a única linha que parece conectá-las é a própria Appsterdam. Aí está a grande verdade. Como uma meta-organização, nós não somos fazedores, mas sim facilitadores.
 
@@ -30,7 +30,7 @@ Não foi por acidente que escolhemos a cidade com a população diversa cujos no
 
 E nós não nos importamos. Nós estamos construindo um refúgio para Criadores de Apps nos Países Baixos porque nós queremos morar nesse refúgio. Pessoas que vêm procurando por isso e que são capazes de progredir com outras pessoas são bem vindas para se juntar a nós aqui. Se você quer lutar sobre isso, não incomode.
 
-As pessoas que compreendem Appsterdam, que vão encontrar um primeiro e ou segundo lar em Appsterdam, são pessoas que entendem que Appsterdam não é uma empresa ou uma pessoa ou um serviço. Appsterdam é uma idéia, que floresceu em um movimento, que nós somos melhores juntos - seja com você se juntando a nós aqui ou construindo sua própria pequena Appsterdam em casa.
+As pessoas que compreendem Appsterdam, que vão encontrar um primeiro e/ou segundo lar em Appsterdam, são pessoas que entendem que Appsterdam não é uma empresa ou uma pessoa ou um serviço. Appsterdam é uma ideia, que floresceu em um movimento, que nós somos melhores juntos - seja com você se juntando a nós aqui ou construindo sua própria pequena Appsterdam em casa.
 
 Nós não nos importamos com os pessimitas, os odiadores e os resmungões que nos puxam para baixo, porque essas são as pessoas que fazem as coisas serem ruins. Eles são as pessoas que estamos deixando para trás. Appsterdam é o que fazemos dela e até agora o que nós estamos fazendo dela está muito bom, crescendo rapidamente e atraindo várias pessoas para esse grande experimento.
 
